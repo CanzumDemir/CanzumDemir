@@ -10,7 +10,7 @@ I am 22 years old and study infomatics at Furtwangen University. In my free time
 
 Ich habe auch ein neues YouTube Video hochgeladen.
 Hier können Sie mehr über mich erfahren!
-[Erfahren Sie mehr!](www.youtube.com/@fatte9790)
+[Erfahren Sie mehr!](https://www.youtube.com/@fatte9790)
 
 ---
 
