@@ -6,7 +6,7 @@ Neben dem Sport spiele ich auch gern Videospiele. Am liebsten Story-Spiele wie A
 <br>
 I am 22 years old and study infomatics at Furtwangen University. In my free time I like to do sports. For example, I like to go jogging and have also been doing fitness for 2 years. Besides sports I also like to play video games. I like story games like Assassins Creed, but also online games like Call of Duty.
 
-![Hier ein schönes Bild von Can]([https://playplex.mtvnimages.com/uri/mgid:arc:content:nick.intl:e791e137-69ac-4ff2-b3a6-20eb266b6c6f?stage=live&ep=nick.de](https://cdn.pixabay.com/photo/2024/04/19/22/06/ai-generated-8707380_1280.jpg))
+![Hier ein schönes Bild von Can](https://cdn.pixabay.com/photo/2024/04/19/22/06/ai-generated-8707380_1280.jpg)
 
 Ich habe auch ein neues YouTube Video hochgeladen.
 Hier können Sie mehr über mich erfahren!
